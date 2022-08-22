@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @V1ncesoy
-- 📫 cvbalingit@gmail.com
+- 📫 carlvincent.balingit@lsu.edu.ph
